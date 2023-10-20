@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Printhatice
-- 👀 I’m interested in cooking
+- 👀 I’m interested on cooking
 - 🌱 I’m currently learning culinary art
 - 📫 Reach me on instagram @officialhatche
